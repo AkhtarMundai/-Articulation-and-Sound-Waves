@@ -1,1 +1,0 @@
-# -Articulation-and-Sound-Waves
